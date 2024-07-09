@@ -1,3 +1,13 @@
+<img src=”http://link-foto”>
+![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/639811e4-5512-4007-9283-c8f5cebbe3b8)
+
+
+With over 15 years of experience in banking and education, I am a dedicated and results-oriented professional. My expertise includes data analysis, financial accounting, and proficiency in various software such as PostgreSQL, Microsoft Excel, Google Sheets, Power BI, Phyton, and Tableau.    
+
+
+![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/90451d39-9f58-48e3-81da-55969cde6230)
+
+
 ## Hi there 👋
 
 <!--
