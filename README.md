@@ -1,4 +1,6 @@
+Hi, I'm Rinny
 
+  With over 15 years of experience in banking and education, I am a dedicated and results-oriented professional. My expertise includes data analysis, financial accounting, and proficiency in various software such as PostgreSQL, Microsoft Excel, Google Sheets, Power BI, Phyton, and Tableau.    
 ![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/639811e4-5512-4007-9283-c8f5cebbe3b8)
 
 
