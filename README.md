@@ -1,3 +1,7 @@
+
+![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/22ace094-ccdf-4ac6-94fb-145d8c8ecac2)
+
+
 Hi, I'm Rinny
    
 ![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/639811e4-5512-4007-9283-c8f5cebbe3b8)
