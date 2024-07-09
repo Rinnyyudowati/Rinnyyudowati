@@ -1,14 +1,7 @@
 
 ![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/22ace094-ccdf-4ac6-94fb-145d8c8ecac2)
 
-
-Hi, I'm Rinny
-   
-![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/639811e4-5512-4007-9283-c8f5cebbe3b8)
-
-
 With over 15 years of experience in banking and education, I am a dedicated and results-oriented professional. My expertise includes data analysis, financial accounting, and proficiency in various software.      
-
 
 ![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/90451d39-9f58-48e3-81da-55969cde6230)
 ![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/f4026a96-1161-4041-83e5-f035a9f8454e)
