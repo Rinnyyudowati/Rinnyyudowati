@@ -1,4 +1,4 @@
-<img src=”http://link-foto”>
+
 ![image](https://github.com/Rinnyyudowati/Rinnyyudowati/assets/144413246/639811e4-5512-4007-9283-c8f5cebbe3b8)
 
 
